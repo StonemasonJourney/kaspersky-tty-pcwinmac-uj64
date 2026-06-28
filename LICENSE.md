@@ -1,4 +1,4 @@
-# 
+# نهائي Kaspersky Total Security أدوات لـ Mac OS | متقدم Kaspersky Total Security أدوات لـ PC Windows. مع مسح المنافذ و سجل المعاملات — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
